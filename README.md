@@ -1,1 +1,0 @@
-# toriiyt.github.io
